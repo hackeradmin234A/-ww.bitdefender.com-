@@ -1,2 +1,2 @@
-# -ww.bitdefender.com-
+# ww.bitdefender.com-
 dssdewewe
